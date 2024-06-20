@@ -1,4 +1,4 @@
-Exodyne, Inc
-============
+Exodyne Industrial Corporation
+==============================
 
-Hello! This is a placeholder while we get things set up. Please check back later :)
+You have found the site of the Exodyne Industrial Corporation. We are still setting things up; check again soon for interesting updates!
